@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @kenangrmdhn
--  just a nood person haha
+-  just a noob person haha
